@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Kygave
+- 👀 I’m interested in blender and python
+- 🌱 I’m currently learning python
+- 📫 How to reach me:Discord- Kygave#9794
